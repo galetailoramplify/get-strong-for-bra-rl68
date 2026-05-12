@@ -1,4 +1,4 @@
-#  
+#  Experience get strong for brainrots like never before with custom get strong for brainrots Scripts, the #1 Script. Includes auto-upgrade and
 
 
 
